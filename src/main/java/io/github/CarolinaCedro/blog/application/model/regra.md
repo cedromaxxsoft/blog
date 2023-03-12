@@ -1,0 +1,2 @@
+![Captura de tela de 2023-03-11 15-04-21.png](..%2F..%2F..%2F..%2F..%2F..%2F..%2F..%2F..%2F..%2F..%2F..%2FImagens%2FCapturas%20de%20tela%2FCaptura%20de%20tela%20de%202023-03-11%2015-04-21.png)
+![Captura de tela de 2023-03-11 15-04-39.png](..%2F..%2F..%2F..%2F..%2F..%2F..%2F..%2F..%2F..%2F..%2F..%2FImagens%2FCapturas%20de%20tela%2FCaptura%20de%20tela%20de%202023-03-11%2015-04-39.png)
